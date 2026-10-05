@@ -1,0 +1,2 @@
+# premium-quarter-knee-001-quarter-knee-laminate-hull-c
+Stop juggling spreadsheets and sticky notes for your quarter knee laminations—this Notion template gives you a dedicated digital lab to track every ply, cure time, and hull interface without the guesswork.  The Quarter Knee Laminate &amp; Hull Craft Lab is purpose-built for boatbuilders who need precision in their cold-molding and lamination workflow.
